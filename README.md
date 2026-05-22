@@ -1,1 +1,1 @@
-# cchan0405.github.io
+# edinburgh_university_2026.github.io
